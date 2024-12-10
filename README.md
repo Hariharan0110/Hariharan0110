@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ndokireddy@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1oaaiye3Hm7i9vir0JaR3QCAX3msOJ-62/view?usp=sharing](https://drive.google.com/file/d/1oaaiye3Hm7i9vir0JaR3QCAX3msOJ-62/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1oaaiye3Hm7i9vir0JaR3QCAX3msOJ-62/view?usp=sharing](https://drive.google.com/file/d/1SWMimeX-BAYtKSbs6PWn4ksEysBtCVeh/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
